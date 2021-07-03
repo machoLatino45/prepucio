@@ -32,7 +32,7 @@ A bíblia é um livro complexo. Inclui contos, sentenças, mitologia, poemas er�
 
 ### Parte 1: As alianças
 
-Bom, comecemos por falar em alianças (em inglês "covenante")
+Bom, comecemos por falar em alianças (em inglês "covenant")
 Para o propósito que nos interessa nesta situação, uma aliança é um pacto que Deus faz com a Humanidade. Do género: "Eu dou-vos algo, vocês dão-me algo em troca". Até ao ponto da bíblia que nos interessa, ocorrem 3 alianças.
 
 #### 1ª Aliança Gn 2 - Com Adão, nos Jardins do Éden
